@@ -16,6 +16,7 @@
 
 联系方式
 微信：xianxiaomi6 
+QQ:   1038153671
 
 官网：[www.xianxiaomi6.com](https://www.xianxiaomi.com/)
 
