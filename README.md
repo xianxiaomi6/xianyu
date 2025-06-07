@@ -15,7 +15,7 @@
 钉钉/邮件推送：不错过任何一次机会。
 
 联系方式
-微信：xianxiaomi6 
+微信：cpu-7777 
 QQ:   1038153671
 
 官网：[www.xianxiaomi6.com](https://www.xianxiaomi.com/)
