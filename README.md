@@ -18,5 +18,5 @@
 微信：cpu-7777 
 QQ:   1038153671
 
-官网：[www.xianxiaomi6.com](https://www.xianxiaomi.com/)
+官网：[www.xianxiaomi.com](https://www.xianxiaomi.com/)
 
